@@ -1,0 +1,12 @@
+## Read and Download Parenting and Child Development books free
+- [How to Talk So Kids Will Listen and Listen So Kids Will Talk](https://lit2talks.com/how-to-talk-so-kids-will-listen-and-listen-so-kids-will-talk-pdf-2244)
+- [Know Your Parenting Personality](https://lit2talks.com/know-your-parenting-personality-book-pdf-2247)
+- [A Secure Base: Parent-Child Attachment and Healthy Human Development](https://lit2talks.com/a-secure-base-parent-child-attachment-and-healthy-human-development-2260)
+- [Toxic Parents: Overcoming Their Hurtful Legacy and Reclaiming Your Life](https://lit2talks.com/toxic-parents-overcoming-their-hurtful-legacy-and-reclaiming-your-life-2261)
+- [Parenting Skills Homework Planner](https://lit2talks.com/parenting-skills-homework-planner-2262)
+- [The Everything Parent's Guide to Emotional Intelligence in Children](https://lit2talks.com/the-everything-parents-guide-to-emotional-intelligence-in-children-2263)
+- [Mindful Discipline: A Loving Approach to Setting Limits and Raising an Emotionally Intelligent Child](https://lit2talks.com/mindful-discipline-a-loving-approach-to-setting-limits-and-raising-an-emotionally-intelligent-child-2264)
+- [The Whole-Brain Child: 12 Revolutionary Strategies to Nurture Your Child's Developing Mind](https://lit2talks.com/the-whole-brain-child-12-revolutionary-strategies-to-nurture-your-child-s-developing-mind-2265)
+- [Peaceful Parent, Happy Kids: How to Stop Yelling and Start Connecting](https://lit2talks.com/peaceful-parent-happy-kids-how-to-stop-yelling-and-start-connecting-2266)
+- [13 Things Mentally Strong Parents Don't Do by Amy Morin](https://lit2talks.com/13-things-mentally-strong-parents-don-t-do-by-amy-morin-pdf-2258)
+- [Helping Children to Improve Their Communication Skills](https://lit2talks.com/helping-children-to-improve-their-communication-skills-pdf-2259)
